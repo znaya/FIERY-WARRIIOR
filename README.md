@@ -1,0 +1,1 @@
+Selamat datang di dunia yang penuh tantangan dan keajaiban, dunia Fiery Warrior! Bergabunglah dalam petualangan epik sebagai seorang warrior yang terjebak di dunia lain, di mana satu-satunya jalan keluar adalah melalui pertempuran yang sulit dan monster-monster yang menakutkan.
