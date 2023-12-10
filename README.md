@@ -1,1 +1,4 @@
-Selamat datang di dunia yang penuh tantangan dan keajaiban, dunia Fiery Warrior! Bergabunglah dalam petualangan epik sebagai seorang warrior yang terjebak di dunia lain, di mana satu-satunya jalan keluar adalah melalui pertempuran yang sulit dan monster-monster yang menakutkan.
+**FIERY WARRIOR**
+
+Siapkah Kamu Menjadi Fiery Warrior?
+Fiery Warrior adalah lebih dari sekadar game; itu adalah pengalaman petualangan yang mendalam dan penuh aksi. Bersiaplah untuk memasuki dunia yang penuh dengan rahasia, pertempuran epik, dan kisah kepahlawanan dalam game 2D RPG yang unik ini. Segera, petualang, dunia lain menantimu!              
